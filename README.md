@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi 👋, I'm Furkan. I'm a Student 👨‍🎓, Game Developer 🚀<br>- 🔭 I’m currently working on a large and special application.<br>- 🌱 I’m currently learning 😂<br>- 👯 I’m looking to collaborate with other Game developer 👩‍💻 <br>- 🥅 2023 Goals: Developing an app to be heard in the world 🌎 and learning artificial intelligence 🤖<br>- ⚡ Fun fact: I love to swim 🏊‍♀️, play a game 🎮
+Hi 👋, I'm Furkan. I'm a Student 👨‍🎓, Game Developer 🚀<br>- 🔭 I’m currently working on a large and special application.<br>- 🌱 I’m currently learning 😂<br>- 👯 I’m looking to collaborate with other Game developer 👩‍💻 <br>- 🥅 2024 Goals: Developing an app to be heard in the world 🌎 and learning artificial intelligence 🤖<br>- ⚡ Fun fact: I love to swim 🏊‍♀️, play a game 🎮
 
 
 ## 🌐 Socials:
